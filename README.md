@@ -7,7 +7,7 @@
 
 - 💬 Ainda estou devendo aprender sobre: **I.A, POO. API.**
 
-- ♟️ Hobbies (quando tenho algum tempo): **Tentar tocar violão e desenhar, escrever poemas, jogar xadrez e jogos digitais.**
+- ♟️ Hobbies (quando tenho algum tempo): **Tentar desenhar, jogar xadrez e jogos digitais de RPG.**
 
 <h3 align="left">Meu Instagram</h3>
 <p align="left">
